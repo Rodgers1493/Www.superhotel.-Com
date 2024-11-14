@@ -1,1 +1,1 @@
-# Www.superhotel.-Com
+ Www.superhotel.Com
